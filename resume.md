@@ -5,6 +5,6 @@ Keon Young Park
 Education
 High School: HANALANI SCHOOL (Mililani, HI) August 2017 – May 2023 
 GPA: Cumulative Unweighted GPA: 3.915 & Cumulative Weighted GPA: 4.047
-Graduation Date: May 2023
 University: NORTHEASTERN UNIVERSITY
 Major: Cybersecurity
+Expected Graduation Date: May 2027
